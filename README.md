@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NathalyLourenco
+- 👋 Eu sou @🅝🅐🅣🅗🅐🅛🅨🅛🅞🅤🅡🅔🅝🅒🅞
 - 👀 I’m interested in ...aprender e ganhar nota 🎴 mas gosto de desenhar 🎨
 - 🌱 I’m currently learning ...o github,em geral programação 🔵
 - 💞️ I’m looking to collaborate on ...me empenhar nos estudos e finalizar 🎑
